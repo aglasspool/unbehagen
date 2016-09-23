@@ -1,0 +1,33 @@
+---
+layout: post
+title:  "Der Witz/Ironie als metaphore paternel/Sinthome/Kunstpraxis"
+date:   2014-12-24 19:13:16
+categories: jekyll update
+---
+Il faut quelq'un pour recevoir le Witz. Mais, au meme temps, il est possible de faire un Witz privé (voir Gertrude Stein).
+
+L'ironie vise souvent l'autre qui est en face (ironie invective). Mais, ça peut viser aussi l'Autre du code (langage). Dans cette contexte il peut avoir le meme effet du Witz qui va contre le code et l'agency du superego.
+
+> Le sujet acquiert ce que Lacan nomme « la dimension du Nom-du-Père et le processus constitue ce qu’il désigne comme « la métaphore paternelle » : la métaphore, c’est la figuration qui est mise en œuvre dans le processus du mot d’esprit et, plus généralement, dans l’accentuation ironique du discours. Et cette métaphore est dite paternelle parce que ce qu’elle désigne, c’est l’institution symbolique, la loi du Père, dont elle pointe la défaillance (le chien fait miaow miaow).
+
+`Le trait d’esprit est solidaire de l’Autre qui est chargé de l’authentifier.` (Lacan, Séminaire V, op. cit., V, 3, p. 97.)
+
+> « L’Autre entérine un message comme achoppé, échoué, et dans cet achoppement même reconnaît la dimension au-delà dans laquelle se situe le vrai désir, c’est-à-dire ce qui, en raison du signifiant, n’arrive pas à être signifié. » Le message achoppé, c’est le blocage du signifiant qui déclenche le pas-de-sens ; dans le pas-de-sens, se manifeste « la pensée principale » du message, mais elle se manifeste en tant qu’elle n’est pas explicitement dite, et donc qu’elle manque. C’est pourquoi le pas-de-sens manifeste non une demande (que formulerait un discours voltairien, avec des accusations et des propositions), mais un désir.
+<http://utpictura18.univ-montp3.fr/Voltaire/VoltaireIronie.php>
+
+
+`Der Witz/Ironie comme lien sociale.`
+
+I  would  suggest that  the  arts  always  intervene  in  an  already  existing discourse.  They  do  not  constitute  or  create  a  discourse  by  themselves.  They  invent something in the inconsistency or incompleteness of a given discourse. Art is always an   intervention,   an   interpretation.   Unless, reversely, they honour, eulogize or memorialize an existing discourse and therefore belong to academism. Their interventions then can be called collaborations. Contemporary art (i.e. art that has a pertinence on the master discourse of the day) intervenes  on  an  instance  of  inexistence  of  the  Other [an  instance  of  S(Ø]. When they  create  something  the  arts,  the  artists,  the  works  of  art  do  not  amount  to  the formation of a social bond but they provoke transformations of social bonds – what we call changes of taste.
+<http://www.iclo-nls.org/wp-content/uploads/Pdf/Seven%20critical%20remarks.pdf>
+
+The most effective conceptual writing, as with all conceptual art, alters a thing’s accepted context. Critics would have you think that all this is merely silly, but in the best cases there’s a method to the madness: these artists are doing the very basic, very necessary work of helping us see with new eyes.
+<http://www.theparisreview.org/blog/2014/12/11/erasing-duchamp/>
+
+It  is  precisely  in  the interplay  between  the  message  and  the  code,  and  also  in  the  return  of  the  code  to  the message,  that  the  essential  dimension  into  which the  witticism  immediately  introduces  us will have  its  effect. - Seminar V formations of the uncouncscious (6.11.1957(1))
+
+
+
+
+
+
