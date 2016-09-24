@@ -19,6 +19,8 @@ Ceci est une facon de ne pas répondre a la demande (capriceuse) de l'Autre [say
 une théorie inverse de la théorie restée classique. Ce n’est pas la forclusion du Nom-du-Père, mais au contraire le trop de présence du Nom-du-Père, qui est le ressort de la psychose. Le père ne doit pas se confondre avec l’Autre de la loi. Il faut, au contraire, qu’il ait un désir accroché et régulé par un fantasme dont l’objet soit à l’occasion une jouissance structurellement perdue (lack).
 <http://www.wapol.org/fr/articulos/Template.asp?intTipoPagina=4&intPublicacion=38&intEdicion=13&intIdiomaPublicacion=5&intArticulo=2658&intIdiomaArticulo=5>
 
+![](https://github.com/aglasspool/unbehagen/blob/master/img/Miller-Ordinary-Psychosis-Revisted.png)
+
 ![](/img/Miller-Ordinary-Psychosis-Revisited.png)
 
 *Extract from [JAM - ORPPN26.pdf](/img/Miller-Ordinary-Psychosis-Revisted-PN26.pdf)*
