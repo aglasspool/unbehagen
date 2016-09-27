@@ -24,3 +24,9 @@ une théorie inverse de la théorie restée classique. Ce n’est pas la forclus
 ![](/img/Miller-Ordinary-Psychosis-Revisited.png)
 
 *Extract from [JAM - ORPPN26.pdf](/img/Miller-Ordinary-Psychosis-Revisted-PN26.pdf)*
+
+> Joyce (le pyschotique) a mis autre chose que la femme en place d'objet a.
+
+Quote from 'Reading Seminar XI' - the pychtique has only S1-S2 and doesn't have $-a to fall back on. 
+
+Surmoi feroce S1-S2
