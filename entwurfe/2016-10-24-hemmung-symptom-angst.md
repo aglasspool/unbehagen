@@ -14,3 +14,7 @@ L'angoisse c'est quand nous avons plus access a cet objet.
 
 ![](https://www.cairn.info/loadimg.php?FILE=CLA/CLA_026/CLA_026_0059/img001.jpg)
 
+>"le rapport de l'angoisse essentiel au désir de l'Autre." (Sem. 10)
+
+![](/img/embarassfantasme.png)
+*Seminaire X, 23 Janvier 1963*
