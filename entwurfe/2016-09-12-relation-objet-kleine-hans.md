@@ -4,4 +4,12 @@ Faute de pouvoir s'identifier au pére, Hans s'identifie (a travers le cheval) d
 
 This resulted in his 'enfants fantasmatiques' de sa carriere comme stenograph a l'opera. 
 
--> Pferd/Wagen -> enfants fantasmatiques  
+-> Pferd/Wagen -> enfants fantasmatiques
+
+## The divided Other
+The discourse of science: S1 -> S2
+No interest in the real(s)
+Because to recognise that the Other is divided (A/) 
+Is to recognise that the Subject is divided ($)
+The subject cannot do without his object a
+He will pass to the act before losing it
