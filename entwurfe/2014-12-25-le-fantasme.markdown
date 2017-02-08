@@ -24,6 +24,11 @@ This of course presupposes a desiring (lacking) Other..
 * JAM woman from BCN - 'Tres'
 * Dora - unvermögend
 * [Femme a 'taper'](http://www.lacan-universite.fr/wp-content/uploads/2010/12/LES-JEUX-DU-CORPS-ET-DU-SYMPTOME.pdf)
+* Little Hans - 'enfants fantasmatiques'
+* Fresh brains man 
+
+> “… What is essential is not that the subject is or is not really a plagiarist, but that his whole desire is to plagiarise. This for the simple reason that it seems to him that it is only possible to formulate something which has a value if he has borrowed it from someone else” (Seminar XIV, 08.03.67.)
+
 * L'homme au licorne 'poordjeli' 
 
 > C’est ainsi que Leclaire en arrive à dégager ce qu’il appelle « la chaîne signifiante inconsciente, absurde, hiéroglyphique » : lili – plage – soif – sable – peau – pied – corne. C’est une chaîne, un essaim de S1, alors que licorne est le représentant non représentatif S2 de l’inconscient. La licorne (cet animal mythique emblème de fidélité, dont la légende dit que pour le capturer il faut laisser, dans la solitude de la forêt, une vierge offerte, car la licorne viendra placer sa corne en son giron et s’endormira sur-le-champ) condense, du li(t) de Lili à la corne que Philippe souhaite avoir, les deux bouts de cette chaîne et tient dans son intervalle les éléments où se déplace la métonymie de son désir. ([Cairn](https://www.cairn.info/revue-l-en-je-lacanien-2008-2-page-81.htm))
