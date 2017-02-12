@@ -74,9 +74,17 @@ dire que c’est une fin possible de l’analyse. C’est précisément ce que L
 <http://disparates.org/lun/2011/02/cours-de-jacques-alain-miller-du-2-fevrier-2011/>
 
 
+## Postscript
+Desire is always the desire of the Other and it is always oedipal.
+C'est toujours une pousse a la virilité (JAM - L'un tout seul)
 
+>la distance qu’il peut maintenir entre les deux lignes pour y respirer pendant le temps qu’il lui reste à vivre, et c’est cela que nous appelons le désir. (Le désir et son interpretation)
 
+>C’est parce que ce signifiant trouve là sa place...et en même temps ne peut la trouver parce que ce signifiant ne peut pas s’articuler au niveau de l’Autre...que viennent, comme dans la psychose...et c’est ce par quoi le deuil s’apparente à la psychose...pulluler à sa place toutes les images dont relèvent les phénomènes du deuil. (Sem Le désir et son interpretation).
 
+>Et en fin de compte, c’est dans cette rencontre avec l’autre qu’HAMLET va enfin s’identifier avec le signifiant fatal. Eh bien, chose très curieuse, c’est dans le texte: on parle des fleurets, des foils, au moment de les distribuer: .. (Le désir et son interpretation) 
+
+Les non-dupes errent..
 
 
 
