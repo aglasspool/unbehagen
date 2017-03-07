@@ -23,3 +23,8 @@ Art has always been used to both cover and expose the real (objet a).
 
 
 A voir aussi - Mustafa Safouan "les seminaires de JL" https://books.google.co.uk/books?id=mvtQyGahR3kC&pg=PT80&lpg=PT80&dq=lacan+artiste+fantasme&source=bl&ots=xuEty98XyV&sig=dBVnSoFLpUgccbIycZDBqFwI0lg&hl=en&sa=X&ved=0ahUKEwiGrff8k4_OAhVCDMAKHfMWCDo4ChDoAQhmMAg#v=onepage&q=lacan%20artiste%20fantasme&f=false
+
+Deleuze on the creative act: the artist is inscribed in a process of writing (VD) - the necessary, just as the scientist.
+https://www.youtube.com/watch?v=2OyuMJMrCRw
+
+See Eric Laurent on Frank Gehry and the _gefilte fish_ de sa grand-mére (L'envers de la biopolitique, pg. 186).
