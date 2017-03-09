@@ -14,4 +14,14 @@ VD -> inuendos are only sexual. There is an inuendo in almost every signifying c
 
 _'Le symptôme est d’emblée présenté - dirais-je - comme un avatar de la pulsion.'_
 
+![](/img/boltraffio.jpg
+
+Two of Freud's key texts are 1.)Ein Kind wird geschlagen and 2.)Psychopathologie des Alltags.
+
+The first describes the three stages of the fantasme - the third stage being the 'nom-du-pére' and inscription into language (the symbolic) via the fantasme fondamentale. 
+
+The resulting symptom (Ersatz) is then (incoroporated into the ego) and inscribed. Fenetre/écran sur le monde (JAM).
+
+It underlies the speech of the parletre, i.e. there are two signifying chains at work. 
+
  
